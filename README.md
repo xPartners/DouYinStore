@@ -6,7 +6,7 @@
 * 点赞视频找不到
 * 太多内容难搜索
 
-愉快的抖
+畅快的抖
 ---
 
 [精诚合作](mailto:ccnp_server@qq.com?subject=DouYinStore-github)
